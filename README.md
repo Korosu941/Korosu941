@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Korosu941
 - 👀 I’m interested in Roblox and discord
 - 🌱 I’m currently learning how to code
-- 📫 You can contact me whit my number (french) : 07 77 88 51 90
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Im am less than 15 yo
 
